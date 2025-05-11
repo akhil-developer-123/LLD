@@ -1,0 +1,1 @@
+LLD Schema: https://lucid.app/lucidchart/30136637-c8a0-4bb4-b433-2461f51b4d57/edit?viewport_loc=-2192%2C-200%2C3388%2C1690%2C0_0&invitationId=inv_02ef8e47-fdee-4677-a924-8b38e55a2b9a
